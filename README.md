@@ -1,2 +1,5 @@
-# maneva-guard-xd-v2
-xdxdxd
+# Çalınması Yasaktır
+
+- Çalan Kodır Dil Anlamışşsen?
+
+- tamam
